@@ -10,7 +10,8 @@ author:
 # The `>` after `description:` means to ignore line-breaks until next key. If
 #   you wish to omit the line-break after the end of text, use `>-` instead.
 description: >
-  Decypher Switzerland one number at a time!
+  Silly Meets Serious: Decoding Switzerland Through Numbers!
+
 
 
 # Build settings
