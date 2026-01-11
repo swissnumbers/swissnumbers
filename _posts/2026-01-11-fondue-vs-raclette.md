@@ -48,8 +48,8 @@ While fondue wins the "search war" on Google, raclette is winning our hearts. La
 --------------------------------------------------------------------------------
 ### The Final Verdict: Who is More Popular? 🏆
 
-Determining a single winner is tough because both dishes are so important to us. Fondue is the economic heavyweight—it completely dominates the Google search data and keeps our hard-cheese exports strong.
-However, popularity is about more than just search numbers. Looking at the pure enthusiasm of the Swiss people, the massive social media buzz, the "purity of intent" in how we buy the cheese, and the incredible world-record turnout, there is a clear favorite for our social lives.
+Determining a single winner is tough because both dishes are so important to us. Fondue is the economic heavyweight, it dominates the Google search data and keeps our hard-cheese exports strong.
+However, looking at the pure enthusiasm of the Swiss people, the massive social media buzz, the "purity of intent" in how we buy the cheese, and the incredible world-record turnout, and the decade-long changing trend, there is a clear favorite.
 
 **The Conclusive Winner: RACLETTE! 🥇**
 
